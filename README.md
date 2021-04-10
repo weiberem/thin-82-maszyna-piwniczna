@@ -1,0 +1,1 @@
+# thin-82-maszyna-piwniczna
